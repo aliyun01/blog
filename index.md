@@ -10,6 +10,6 @@
 
 无论是全职还是兼职，远程办公无疑提供了更自由的工作环境。
 
-[云队友远程工作平台]:(https://www.duiyou360.com/?utm_source=user)
+[云队友远程工作平台](https://www.duiyou360.com/?utm_source=user)
 
 
