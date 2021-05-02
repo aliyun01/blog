@@ -8,7 +8,7 @@
 2. [云队友](https://link.zhihu.com/?target=https%3A//awp.duiyou360.com/invite/xIl4s2aaqR5dosebJdqRxPlz1X-4eJL-ZKvyQoGYaT74-JwvKrmyo9mTQJpdgbr0)平台不仅支持PC端，手机端也可以使用，实时查看任务进度
 3. 平台设计的职位范围广，包括技术、运营、设计、HR、翻译等
 
-无论是全职还是兼职，远程办公无疑提供了更自由的工作环境。
+无论是全职还是兼职，远程办公无疑提供了更自由的工作环境
 
 [云队友远程工作平台](https://www.duiyou360.com/?utm_source=user)
 
